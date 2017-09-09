@@ -1,2 +1,0 @@
-# chinino
-soy lalo
